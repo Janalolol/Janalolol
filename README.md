@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Janalolol
+- 👀 I’m interested in games
+- 😄 Pronouns: she/them
